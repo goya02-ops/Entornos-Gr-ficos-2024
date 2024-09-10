@@ -1,1 +1,1 @@
-# Entornos-Gr-ficos-2024
+# Entornos-Graficos-2024
